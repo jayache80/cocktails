@@ -75,6 +75,19 @@ Place fresh mint into shaker with .75 oz simple syrup and muddle.
 __Shake__ and strain into collins glass filled with ice. Top with soda water.
 Garnish with mint sprigs.
 
+### Fruitito
+Place fresh mint into shaker with .75 oz simple syrup and muddle.
+- .75 oz fresh lime juice
+- 2 oz Flavored White Rum
+
+__Shake__ and strain into collins glass filled with ice. Top with soda water.
+Garnish with mint sprigs.
+
+### Dark and Stormy
+Place 2 oz Gosling's Black Seal Rum (Aged Rum) into collins glass and fill with ice.
+
+Garnish with lime.
+
 # Tequila
 
 ### Margarita:
@@ -104,4 +117,13 @@ with lime wedge.
 
 __Shake vigorously__ and strain into chilled coupe glass. Garnish with thinly
 sliced lime wheel.
+
+### Lemon Drop
+- 2 oz Vodka
+- .5 oz Cointreau
+- 1 oz fresh lemon juice
+- 1 oz simple syrup
+
+__Shake vigorously__ and strain into chilled coupe glass. Garnish with a lemon
+peel.
 
