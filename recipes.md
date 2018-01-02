@@ -84,9 +84,15 @@ __Shake__ and strain into collins glass filled with ice. Top with soda water.
 Garnish with mint sprigs.
 
 ### Dark and Stormy
-Place 2 oz Gosling's Black Seal Rum (Aged Rum) into collins glass and fill with ice.
+#### For self-mixing:
+Place 2 oz Gosling's Black Seal Rum (80 proof Aged Rum) into collins glass and fill with
+ice. Top off with ginger beer.
 
-Garnish with lime.
+#### For sexy two-tone storm (but requires a stir before drink):
+Fill glass with ice. Pour in ginger beer leaving enough space for the rum.
+Gently pour in 2 oz of Gosling's Black Seal Rum (80 proof Aged Rum)
+
+Squeeze a lime wedge in and throw it in as a garnish.
 
 # Tequila
 
