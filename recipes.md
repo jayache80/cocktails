@@ -105,6 +105,16 @@ Squeeze a lime wedge in and throw it in as a garnish.
 __Shake__ and strain into a chilled rocks glass with a salted rim. Garnish with
 thinly sliced lime wheel.
 
+### Reddit Margarita:
+- 2 oz Tequila Blanco
+- 1 oz fresh lime juice
+- .75 oz agave
+- .5 oz Cointreau
+- .5 oz Gran Marnier
+
+__Shake__ the *fuck* out of it and strain into a rocks glass filled with
+cracked ice.
+
 # Vodka
 
 ### Moscow Mule:
